@@ -1,5 +1,7 @@
 # Yauheni Sauchuk
 
+![IMG_0023-8](https://user-images.githubusercontent.com/96061087/147859763-34d7f27c-7385-4a22-97af-01b938689060.jpg)
+
 ### Contacts for communication:
 *******
 * address: *Minsk, Belarus*
